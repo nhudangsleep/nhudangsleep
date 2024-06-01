@@ -1,4 +1,4 @@
-fun fact: im acchually @nhudangstudy
+fun fact: im achually @nhudangstudy
 
 imma change this readme file real soon kiki
 
